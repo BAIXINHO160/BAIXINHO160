@@ -1,0 +1,4 @@
+-  👋 sou @BAIXINHO160
+- 👀  Eu gosto muito de jogar
+- 🌱  Sou muito sortudo em mineração 
+- 💞️  Eu jogo com a minha maninha
